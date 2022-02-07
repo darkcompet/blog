@@ -1,0 +1,5 @@
+.github
+.gitlab
+
+.DS_Store
+.vscode/
