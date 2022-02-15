@@ -30,6 +30,7 @@ Quá khứ là gì, những điểm nào chúng ta cần để ý ở nó?
 Như vậy cái chúng ta cần để ở trong tâm trí là gì, đó là:
 
 A. Vật chất: như là thực vật, động vật đã hy sinh để nuôi dưỡng chúng ta.
+
 B. Tinh thần: như là những bài học, thử thách để chúng ta có thể rèn luyện bản thân.
 
 - Cái này ôg bà ta đã nói nhiều rồi, `ăn quả nhớ kẻ trồng cây`, `uống nước nhớ nguồn`,
@@ -45,7 +46,7 @@ Thực sự chúng ta có hiểu đc tại sao ta phải gặp thử thách gian
 
 -> Tóm lược lại, vậy bạn đã hiểu tại sao chúng ta phải tri ân quá khứ chưa?
 
-- Nếu câu trả lời là `đã hiểu`, vậy chứng tỏ bạn chưa có hiểu.
+- Nếu câu trả lời là đã hiểu lý do `tại sao`, vậy chứng tỏ bạn chưa có hiểu.
 - Nếu bạn đang sống theo lời ôg bà truyền lại, và ko hiểu tại sao phải suy nghĩ như vậy,
 thì bạn đã hiểu rồi đó.
 
