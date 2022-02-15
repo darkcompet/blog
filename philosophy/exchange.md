@@ -36,12 +36,11 @@ B. Tinh thần: như là những bài học, thử thách để chúng ta có th
 - Cái này ôg bà ta đã nói nhiều rồi, `ăn quả nhớ kẻ trồng cây`, `uống nước nhớ nguồn`,
 `1 ngày làm thầy, cả đời làm cha`,...
 
-Chỉ là chúng ta có thực sự hiểu tại sao phải vậy?
 
 - Những thử thách, gian nan mà cuộc đời tặng cho chúng ta. Sẽ có người biết ơn,
 có người sẽ oán trách,...
 
-Thực sự chúng ta có hiểu đc tại sao ta phải gặp thử thách gian nan?
+Chỉ là chúng ta có thực sự hiểu tại sao phải vậy? Tại sao lại phải gặp thử thách gian nan?
 
 
 -> Tóm lược lại, vậy bạn đã hiểu tại sao chúng ta phải tri ân quá khứ chưa?
